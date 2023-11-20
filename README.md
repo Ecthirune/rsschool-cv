@@ -1,1 +1,1 @@
-# rsschool-cv
+https://github.io/Ecthirune/rsschool-cv/cv
